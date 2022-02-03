@@ -1,3 +1,5 @@
+![](banner2.jpg)
+
 ![visitors](https://visitor-badge-reloaded.herokuapp.com/badge?page_id=amp-patel.amp-patel&color=00cf00)
 
 ## :book: 𝙰𝚋𝚘𝚞𝚝 𝙼𝚎
